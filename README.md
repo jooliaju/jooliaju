@@ -1,6 +1,6 @@
-Welcome to my github :D 
+Welcome to my Github!
 
-Get to know me ⤵️ /n
+Get to know me ⤵️ <br />
 juliaju.super.site
 
 
