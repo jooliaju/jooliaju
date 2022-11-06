@@ -1,4 +1,4 @@
 Welcome to my Github!
 
-Get to know me ⤵️ <br />
+Here's a bit about me⤵️ <br />
 [juliaju.super.site](https://juliaju.super.site)
